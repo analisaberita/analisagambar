@@ -1,2 +1,2 @@
-# gambarberita
+# ANALISA GAMBAR
 Gambar Terkini Analisaberita
